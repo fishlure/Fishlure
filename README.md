@@ -5,7 +5,7 @@ Hai Hello, I'm Lure, no I am not from that stupid roblox dragon game that like 4
 
 > Most people call me **Lure** but I also go by **Hollow** and **Blitz** (kin reasons babyy)
 
-> **He/Him** , I have a few neopronouns but because of some events, I'm still trying to build my confience again
+> **He/Him** , I have a few neopronouns but because of some events, I'm still trying to build my confidence to use them again
 
 > I have alotta issues regarding past friendgroups, not just on ponytown, if I have you on my friendlist I really appreciate you
 
