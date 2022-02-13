@@ -21,3 +21,9 @@
 - **Phosphophyllite • Houseki No Kuni**
 
 hai thank you for reading :-]
+
+
+
+
+
+![Art from Houseki No Kuni Manga Ch.. 86](http://www.simpleimageresizer.com/_uploads/photos/4020b9c4/lol_2_65.jpg)
