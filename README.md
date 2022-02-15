@@ -1,7 +1,7 @@
 # 。★°."The moon is... where you will start to waver.".°★ 。
 
 
-## ★,°:.☆(￣▽￣)/:.°★ ° General Info ![Official Art from Houseki No Kuni Manga](http://www.simpleimageresizer.com/_uploads/photos/4020b9c4/transparent_1_35.png)
+## ★,°:.☆(￣▽￣)/:.°★ ° General Info ![Official Art from Houseki No Kuni Manga](https://i.postimg.cc/2SsxJxyW/transparent.png)
 
 - Most people call me **Lure** but I also go by **Hollow** and **Blitz**
 -  **He/Him**, I have a few neopronouns but because of some events, I'm still trying to build my confidence to use them again
