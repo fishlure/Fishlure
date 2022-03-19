@@ -1,31 +1,17 @@
-# 。★°."The moon is... where you will start to waver.".°★ 。
+This github profile is for ponytown, unfortunately. 
 
+I'm Lure.
+I also go by Blitz and Hollow, appreciated if you call me that.
 
-## ★,°:.☆(￣▽￣)/:.°★ ° General Info ![Official Art from Houseki No Kuni Manga](https://i.postimg.cc/2SsxJxyW/transparent.png)
+I use he/him and also drak/drakself, absolutely do not use she/her for me, and try not to use they/them on me.
 
-- Most people call me **Lure** but I also go by **Hollow** and **Blitz**
--  **He/Him**, I have a few neopronouns but because of some events, I'm still trying to build my confidence to use them again
-- I have alotta issues regarding past friendgroups, not just on ponytown, if I have you on my friendlist I really appreciate you genuinely
-- I usually chill at docks in my main dragon skin, but sometimes I go to fandom areas when I'm bored
-- I don't use the hide button often, only for annoying people for like. 30 minutes
+Usually on ponytown dockss 24/7 for some reason, I like it there.
+I like talking to people, if you dont make me uncomfortable you're good in my book.
 
-## ε=ε=ε=(""￣▽￣) oh god oh fuck my (current) interests
-- I have a fuck ton more shit I'm into, these are the ones that recently ive been fixated on
-- ( •̀ ω •́ )✧ Games : **Hollow Knight**, **Genshin Impact**, **FNAF**, Pokemon, Rain World
-- ♪(´▽｀) Music : **Lovejoy**, **Sodikken**, **Mili**, **Riproducer**, Yonkagor
-- ψ(｀∇´)ψ Misc. : **Houseki No Kuni**, **Marvel**, Helluva Boss
+Currently very obsessed with Pokemon Legends of Arceus, would love to list down all my other interests here but that would be annoying.
 
-## (´。＿。｀) unfortunately I am a kinner
-- My kins mean alot to me, they help me cope and stuff but I do not mind doubles most of the time! (theres also two more but I am too embarassed haha)
-- **Blitzo • Helluva Boss**
-- **The Holllow Knight/Pure Vessel • Hollow Knight**
-- **Phosphophyllite • Houseki No Kuni**
+God I sound edgy, thanks for making me self-conscious enough and hate myself for my previous github profile, lmao you know who you are. Absolutely hate your humor, can never tell when you're serious or not and you only stop when I genuinely get upset.
 
-hai thank you for reading :-]
+Have this picture of Bunger from hit psychological horror game, Bugsnax.
 
-
-
-
-
-
-![Gif from Houseki No Kuni Anime](https://user-images.githubusercontent.com/99582157/153811333-2bb144b4-9593-4f12-a5ca-b949dd29fbce.gif)
+![tumblr_9202c462213fbf9f50e23d02020085d6_822685ec_640](https://user-images.githubusercontent.com/99582157/159132183-f0d57e02-6f5b-4faf-8de4-92a8c8ec539e.png)
