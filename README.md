@@ -3,7 +3,7 @@ This github profile is for ponytown, unfortunately.
 I'm Lure.
 I also go by Blitz and Hollow, appreciated if you call me that.
 
-I use he/him and also drak/drakself, absolutely do not use she/her for me, and try not to use they/them on me.
+I use he/him and also drak/drakself, try to not use they/them on me, and if you use she/her on me I will decimate you on sight (it's on fucking sight).
 
 Usually on ponytown dockss 24/7 for some reason, I like it there.
 I like talking to people, if you dont make me uncomfortable you're good in my book.
