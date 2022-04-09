@@ -8,9 +8,13 @@ I use he/him and also drak/drakself, try to not use they/them on me, and if you 
 Usually on ponytown dockss 24/7 for some reason, I like it there.
 I like talking to people, if you dont make me uncomfortable you're good in my book.
 
-Currently very obsessed with Pokemon Legends of Arceus, would love to list down all my other interests here but that would be annoying.
-
-God I sound edgy, thanks for making me self-conscious enough and hate myself for my previous github profile, lmao you know who you are. Absolutely hate your humor, can never tell when you're serious or not and you only stop when I genuinely get upset.
+Currently very obsessed with Pokemon: Legends of Arceus (or Pokemon in general), but heres some of my interests I would love to talk about:
+- Hollow Knight
+- Lisa the Painful & Lisa the Joyful (Lisa RPG)
+- Land of the Lustrous/Houseki No Kuni
+- Rain World
+- Monster Prom
+- Underworld Office
 
 Have this picture of Bunger from hit psychological horror game, Bugsnax.
 
