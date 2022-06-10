@@ -1,7 +1,9 @@
 ![latias](https://user-images.githubusercontent.com/99582157/162770942-8ea207c2-7d4e-4809-8c80-e91035d17323.gif) ![latias](https://64.media.tumblr.com/37ed51111beee06ac748c119972b9c3c/e0b4b2a61f930dee-a0/s640x960/12568b0ab3b02526f061af3c9161e892b4a1dccc.gif) ![latias](https://64.media.tumblr.com/fefbe2dd466c9852a07d5632e95aeaf7/38a03597c5f255a9-a9/s250x400/1cc8c241010ca93b5d6b6c7d1df787a373dfba8f.gif)
 
 This github profile is for ponytown, unfortunately.
+
 DNI LIST:
+
 Agra Dia
 
 ![chandelure](https://user-images.githubusercontent.com/99582157/162776829-782da60d-c0a0-461b-966b-f27a2da21904.gif) ![zoroark](https://user-images.githubusercontent.com/99582157/162778049-95ea8e85-0b59-4c22-a045-d9773001dcd4.gif) ![archeops](https://user-images.githubusercontent.com/99582157/162778381-336ad32c-8707-4e7c-a5c6-f9e061dcdc4f.gif) ![galvantula](https://user-images.githubusercontent.com/99582157/162778608-97a1de41-8a7a-42e3-945f-b52b6dc35ccc.gif) ![eelektross](https://user-images.githubusercontent.com/99582157/162779025-bb153555-f0f0-4e1f-a2c2-2ab150cbe897.gif) ![excadrill](https://user-images.githubusercontent.com/99582157/162779171-99b78623-e2c1-49b4-9e7e-fda29550c3a5.gif) ![reshiram](https://user-images.githubusercontent.com/99582157/162782456-1172a4dd-4464-4f4d-8f00-db29e778af51.gif) ![zekrom](https://user-images.githubusercontent.com/99582157/164975400-e95ca44a-aa54-4cd3-b834-7a39af98a690.gif)
@@ -16,13 +18,12 @@ I use he/him and also drak/drakself, try to not use they/them on me, and if you 
 Usually on ponytown dockss 24/7 for some reason, I like it there.
 I like talking to people, if you dont make me uncomfortable you're good in my book.
 
-Currently very obsessed with Pokemon: Legends of Arceus (or Pokemon in general), but heres some of my interests I would love to talk about:
+Currently very obsessed with Pokemon and Identity V but heres some of my other interests I would love to talk about:
 - Hollow Knight
 - Lisa the Painful & Lisa the Joyful (Lisa RPG)
 - Land of the Lustrous/Houseki No Kuni
-- Rain World
-- Monster Prom
-- Identity V
+- UTAU (And the general gist on using it, I adore rambling about it sometimes)
+- A Girl Adrift 
 - Dragons (In general, they're verrrrry cool. I love them.)
 
 Have a nice morning/day/evening/night.
