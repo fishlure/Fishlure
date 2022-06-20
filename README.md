@@ -2,10 +2,6 @@
 
 This github profile is for ponytown, unfortunately.
 
-DNI LIST:
-
-Agra Dia
-
 ![chandelure](https://user-images.githubusercontent.com/99582157/162776829-782da60d-c0a0-461b-966b-f27a2da21904.gif) ![zoroark](https://user-images.githubusercontent.com/99582157/162778049-95ea8e85-0b59-4c22-a045-d9773001dcd4.gif) ![archeops](https://user-images.githubusercontent.com/99582157/162778381-336ad32c-8707-4e7c-a5c6-f9e061dcdc4f.gif) ![galvantula](https://user-images.githubusercontent.com/99582157/162778608-97a1de41-8a7a-42e3-945f-b52b6dc35ccc.gif) ![eelektross](https://user-images.githubusercontent.com/99582157/162779025-bb153555-f0f0-4e1f-a2c2-2ab150cbe897.gif) ![excadrill](https://user-images.githubusercontent.com/99582157/162779171-99b78623-e2c1-49b4-9e7e-fda29550c3a5.gif) ![reshiram](https://user-images.githubusercontent.com/99582157/162782456-1172a4dd-4464-4f4d-8f00-db29e778af51.gif) ![zekrom](https://user-images.githubusercontent.com/99582157/164975400-e95ca44a-aa54-4cd3-b834-7a39af98a690.gif)
 
 I'm Lure.
