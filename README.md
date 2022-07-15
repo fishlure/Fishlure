@@ -16,6 +16,8 @@ I like talking to people, if you dont make me uncomfortable you're good in my bo
 
 Currently very obsessed with Pokemon and Identity V but heres some of my other interests I would love to talk about:
 - Hollow Knight
+- Chainsaw Man
+- Rain World
 - Lisa the Painful & Lisa the Joyful (Lisa RPG)
 - Land of the Lustrous/Houseki No Kuni
 - UTAU (And the general gist on using it, I adore rambling about it sometimes)
