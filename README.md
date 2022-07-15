@@ -7,7 +7,7 @@ This github profile is for ponytown, unfortunately.
 I'm Lure.
 I also go by Blitz and Hollow, appreciated if you call me that.
 
-I use he/him and also drak/drakself, try to not use they/them on me, and if you use she/her on me I will decimate you on sight (it's on fucking sight).
+I use he/him and also drak/drakself, try to not use they/them on me, and if you use she/her on me I do not know you (half-serious).
 
 ![garchomp](https://user-images.githubusercontent.com/99582157/162774258-f46cddcd-9b61-41ca-9c83-fdbd9e517850.gif) ![salamence](https://user-images.githubusercontent.com/99582157/162779645-e4719bb4-9192-47ad-84d4-f25a14ecf590.gif) ![gliscor](https://user-images.githubusercontent.com/99582157/162779991-a15d0984-b164-4fa7-9b53-6a93f1c68d49.gif) ![weavile-f](https://user-images.githubusercontent.com/99582157/162780083-fb5c5607-4563-4fe2-9a7e-0bbd65200078.gif) ![lucario](https://user-images.githubusercontent.com/99582157/162780727-36c8e063-51ee-453c-a598-dc32123f75bc.gif) ![jolteon](https://user-images.githubusercontent.com/99582157/164975451-46cf2982-2cf7-47ef-be05-d6eb767bbeb3.gif) ![absol](https://user-images.githubusercontent.com/99582157/164975552-34ce0280-2e0f-41df-8f49-70f10f928b95.gif) ![suicune](https://user-images.githubusercontent.com/99582157/162782323-2a383819-2260-4553-ba4b-a67d53d385bb.gif) ![dialga](https://user-images.githubusercontent.com/99582157/164975559-94bfc51d-1f78-4549-bb2f-3d2ddff2bb6b.gif)
 
