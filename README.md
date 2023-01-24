@@ -1,4 +1,4 @@
-read my carrd pony town idiots.
+read my carrd pony town idiots, i finally made one goddamn
 
 https://fishlures.carrd.co/
 
