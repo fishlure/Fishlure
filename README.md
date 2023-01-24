@@ -4,8 +4,7 @@ https://fishlures.carrd.co/
 
 if you are too fucking lazy to open another tab (or ur mobile which. why did u press on my github anyways.)
 
-i go by lure/ampora/hollow for names
-
+i go by lure/ampora/hollow for names,
 he/him for pronouns (i have neos but open my carrd for that fucker)
 
 some pt only info:
