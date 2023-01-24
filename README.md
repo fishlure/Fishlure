@@ -2,6 +2,10 @@ read my carrd pony town idiots.
 
 https://fishlures.carrd.co/
 
+if you are too fucking lazy to open another tab (or ur mobile which. why did u press on my github anyways.)
+i go by lure/ampora/hollow for names
+he/him for pronouns (i have neos but open my carrd for that fucker)
+
 some pt only info:
 - it's rly funny to me i used to be technically docks famous lmao, I'm always up to talk about shtuff (unless im not. Which. sometimes is obvious)
 - i don't come here as often, probs only for random times or hanging out with friends now
