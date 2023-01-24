@@ -1,5 +1,7 @@
 read my carrd pony town idiots.
+
 https://fishlures.carrd.co/
+
 some pt only info:
 - it's rly funny to me i used to be technically docks famous lmao, I'm always up to talk about shtuff (unless im not. Which. sometimes is obvious)
 - i don't come here as often, probs only for random times or hanging out with friends now
