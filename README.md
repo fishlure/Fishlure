@@ -1,8 +1,4 @@
-read my carrd pony town idiots, i finally made one goddamn
-
-https://fishlures.carrd.co/
-
-if you are too fucking lazy to open another tab (or ur mobile which. why did u press on my github anyways.)
+no more carrd, im making a rentry when I can live laugh love lure card will miss you 
 
 i go by lure/ampora/hollow for names,
 he/him for pronouns (i have neos but open my carrd for that fucker)
