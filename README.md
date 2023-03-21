@@ -1,4 +1,5 @@
 never making a rentry, not putting the carrd back lmao, have funny guestbook instead
+
 http://fishlures.123guestbook.com/
 
 i go by lure/ampora/hollow for names,
