@@ -1,9 +1,5 @@
-"never making a rentry, not putting the carrd back lmao, have funny guestbook instead'
+docks youre a fucking cesspool jesus christ youre all insufferable
 
-hey guess what
+https://rentry.co/fishlures / http://fishlures.123guestbook.com/
 
-https://rentry.co/fishlures
 
-http://fishlures.123guestbook.com/
-
-no more pt only info. gone. i am so indecisive but i am free. :bird :
