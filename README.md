@@ -6,4 +6,6 @@ atleast im not like okegom fans who joke about proshippinSorry. My demons. i hat
 
 https://rentry.co/fishlures / http://fishlures.123guestbook.com/
 
+blinkies warning for the rentry / drawn...blood??? headlesss fish??? how do i describe it idk
+
 
