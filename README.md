@@ -6,6 +6,6 @@ atleast im not like okegom fans who joke about proshippinSorry. My demons. i hat
 
 https://rentry.co/fishlures / http://fishlures.123guestbook.com/
 
-blinkies warning for the rentry / drawn...blood??? headlesss fish??? for the guestbook how do i describe it idk
+blinkies warning for the rentry / guestbook safe
 
 
