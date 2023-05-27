@@ -1,4 +1,4 @@
-docks youre a fucking cesspool jesus christ youre all insufferable
+woa a a a a a story of undertale
 
 https://rentry.co/fishlures / http://fishlures.123guestbook.com/
 
