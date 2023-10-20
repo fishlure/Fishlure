@@ -1,9 +1,9 @@
-i dont like men what are you talking about
+lol
 
-https://twitter.com/Voidlace/status/1697436420250759554?s=20
+![lol](https://github.com/fishlure/Fishlure/assets/99582157/922cbb51-477f-4a65-ac0d-5a8efddb17ec)
 
-https://aquarius.straw.page/ / http://fishlures.123guestbook.com/
+https://aquarius.straw.page/
 
-looking for the rentry? soz, i changed to strawpage
+
 
 
