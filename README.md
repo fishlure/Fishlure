@@ -1,4 +1,6 @@
-general dni criteria and if youre chronically online (/hj only for the chronically online part)
+general dni criteria & if you have issues with my friends & if you constantly surround yourself with drama I AM SSO STYIRERE IM SO TIRED OF YOU PEOPLE.
+and also if youre chronically online
+
 
 dont you love the color of the BLOOD AND THUNDER
 ***Split your lungs with blood and thunder
