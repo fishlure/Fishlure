@@ -4,5 +4,4 @@ and also if youre chronically online
 
 read my strawpage please or dont. Yeah i guess
 
-
-
+dont wanna read a strawpage? sucks to suck :fire: :fire: (if enough ppl complain i'll put back my outdated rentry lol
