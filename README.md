@@ -1,3 +1,4 @@
-General dni criteria & if you have issues with my friends & constant drama shit whatever i fucking hate you
+![ISHAMELLL](https://github.com/fishlure/Fishlure/assets/99582157/9e00ec51-64ef-43cb-ba80-63dc409de396)
 
-and also if youre chronically online! I hope you get better! I worry for you! And get help and try to improve yourself! The world can be beautiful sometimes!
+
+I LVOE WOMEN I LOVE WOMEN I  LVOE EVOLVOE I LOVE ISHAMEL FROM HIT GAME LIMBUS COMPAINY INSPIRED BY ISHMAEL FROM HIT BOOK MOBY DICK!!!!!!!! I LOVE WOMEN!!!!!!!!!!!!!!!!! OH MY GODDD!!!!!!!!!!!!!!!! OH M GOD!!!! UNFOLLOW ME RIGHT NOW THIS IS ALL IM GONNA TALK ABOUT FOR THE NEXT WEEK MONTHS MAYBE YEARS. THIS IS ALL IVE BEEN WAITING FOR BABY.
