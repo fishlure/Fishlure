@@ -1,3 +1,1 @@
-![image](https://github.com/fishlure/Fishlure/assets/99582157/05181eaa-47f6-454f-ad17-9b315aac8acf)
-
-look at my stats boy
+![god](https://github.com/fishlure/Fishlure/assets/99582157/581178b3-5894-4231-b679-4b5ea11da877)
